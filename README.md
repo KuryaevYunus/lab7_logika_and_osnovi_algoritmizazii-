@@ -1,0 +1,1 @@
+# lab7_logika_and_osnovi_algoritmizazii-
